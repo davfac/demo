@@ -21,4 +21,3 @@ Audio Zoom, Dual Video, modalità notturna, modalità One Click Video
 dimensioni e peso:
 163,7x76,4x7,8mm
 196 grammi
-colorazioni: Arctic White, Night Black, Deep Ocean Blue
